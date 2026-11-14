@@ -1,3 +1,3 @@
-Ejercicio 6.3 clase del día sábado 
+Ejercicio 6.3 sobre el uso de ramas clase del día sábado 
 
 Diego Mera 
